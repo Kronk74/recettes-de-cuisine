@@ -31,7 +31,7 @@ Lien : https://youtu.be/hd-xqM-AfM0
 - Porter à ébulition et laisser cuire à feu doux pendant une heure à découvert.
 - Retirer les impuretés (la mousse qui apparait) avec un écumoire.
 
-Note : Il est possible de rajouter un peu d'eau si celle-ci s'évapore trop vite. L'idée est de conservé environ un litre à un litre et demi de bouillon en finalité.
+> Note : Il est possible de rajouter un peu d'eau si celle-ci s'évapore trop vite. L'idée est de conservé environ un litre à un litre et demi de bouillon en finalité.
 
 - Une fois la cuisson terminée, retirer la carcasse et les légumes puis filtrer le bouillon à l'aide d'un chiffon propre afin de retirer les petites impuretés.
 
